@@ -1,0 +1,1 @@
+This is where I will be recording my thoughts for an unkown length of time.
